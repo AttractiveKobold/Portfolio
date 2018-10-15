@@ -1,0 +1,1 @@
+Due tot the fact I am still a student until February 24 2019, my portfolio only consists of a few homework assignments and projects that I have done as part of my course work.
